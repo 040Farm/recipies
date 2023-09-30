@@ -1,7 +1,7 @@
 Bottom bake cake
 
 2 medium eggs.  
-60 gram sugar (beet crystal or bastard)  
+50 gram sugar (beet crystal or bastard)  
 50 gram fine flower (patent or 00')  
 10 gram corn flower  
 4 gram lime orlemon juce (optional)  
